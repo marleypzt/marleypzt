@@ -1,4 +1,4 @@
-## abraço meus parceiros sou o marley46  👋
+## marley46  👋
 
 <!--
 **marleypzt/marleypzt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
